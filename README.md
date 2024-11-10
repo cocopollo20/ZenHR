@@ -1,3 +1,4 @@
 # ZenHR Crack
 
-Password: CyCTF20242o24
+Password: CyCTF2024
+
